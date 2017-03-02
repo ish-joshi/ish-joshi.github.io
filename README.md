@@ -1,1 +1,0 @@
-# ish-joshi.github.io
